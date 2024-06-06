@@ -10,6 +10,6 @@ Sou a Mari Moraes
 
 00001098353530xsp@al.educacao.sp.gov.br
 
- !.[.] (https://www.instagram.com/explore/locations/538780163200773/escola-nicota/)
+ [Insta](https://www.instagram.com/explore/locations/538780163200773/escola-nicota/)
 
- !.[.] (https://tenor.com/pt-BR/view/wrapped-gifts-birthday-presents-blossom-flowers-hibiscus-gif-7561922659784932011)
+ ![](https://media.tenor.com/aPFYmCN1OqsAAAAi/wrapped-gifts-birthday-presents.gif)
